@@ -7,3 +7,4 @@
 - 🌱 Learning better deployment and backend practices
 
 Let's build something impactful together.
+My interests are sports,music,photography and video editing 
